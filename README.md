@@ -1,5 +1,6 @@
 <p align="center">
-  <img src="https://github.com/39630/39630/blob/6e484baaeca34153086ab781905fde91b0775c11/holly_peak.gif?raw=true" title="hi hello heheh holly hehe hi hehe"/>
+  <img src="https://github.com/39630/39630/blob/main/unknown.png?raw=true"/>
 </p>
-<p align="center"> <a href="https://github.com/Yunilaili">@Yunilaili</a> <a href="https://github.com/fragileflaw">@fragileflaw</a> + fai my GOATS</p>
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=39630&label=quacks%20&color=00A2E8&style=flat" alt="39630" /></p>
+<p align="center"> don't wait for me ^_^</p>
+
+<!-- im tired. i don't know when i'll be back. there is nothing else to say -->
